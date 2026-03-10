@@ -2,15 +2,13 @@
 
 **C++ Software Engineer (Backend Services)**
 
-📍Germany (Chancenkarte – full work authorization)
-
 📞(+86) 180-1627-9863|✉ [hehehunanchina@live.com](mailto:hehehunanchina@live.com)|🔗 github.com/hanjingo
 
 ---
 
 #### SUMMARY
 
-Experienced C++ Software Developer with 8+ years of professional experience in backend architecture, game server, network frameworks, and distributed systems. Skilled in optimizing performance, reducing operational costs, and mentoring junior engineers. Seeking opportunities in innovative software and system engineering teams.
+Experienced C++ Software Developer with 8+ years of professional experience in backend architecture, game server, network frameworks, and distributed systems. Skilled in optimizing performance, reducing operational costs, and mentoring junior engineers. Seeking opportunities in innovative software and system engineering teams. Seeking opportunities in Germany/New Zealand/Canada/US
 
 ---
 
