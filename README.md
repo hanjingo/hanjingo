@@ -2,6 +2,8 @@
 
 **C++ Software Engineer (Backend Services)**
 
+📍Germany (Chancenkarte – full work authorization)
+
 📞(+86) 180-1627-9863|✉ [hehehunanchina@live.com](mailto:hehehunanchina@live.com)|🔗 github.com/hanjingo
 
 ---
